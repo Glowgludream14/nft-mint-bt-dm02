@@ -1,4 +1,4 @@
-# 
+# smart nft trading bot plugins is the best nft trading bot plugins with whitelist-bypass and mint-detection. Safe, reliable, and optimized for NFT sniper, trading, and arbitrage
 
 
 
